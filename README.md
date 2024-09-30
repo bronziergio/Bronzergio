@@ -4,6 +4,5 @@
 -sou estudante e sou novo nesta área🙂‍↔️
 -gosto de academia🦾
 -gosto de xadrez♟️
-![](https://tenor.com/pt-BR/view/verycat-bttv-emote-gif-15457195716990129290)
 
 ![17276946509414057820235724621164](https://github.com/user-attachments/assets/cb031d5d-a5aa-4a92-a316-a0ed9a3f6cb8)
